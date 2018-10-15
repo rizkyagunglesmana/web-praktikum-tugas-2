@@ -1,0 +1,2 @@
+# web-praktikum-tugas-2
+NAMA: RIZKYAGUNGLESMANA NIM: 5180421001 KELAS G
